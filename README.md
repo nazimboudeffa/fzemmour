@@ -1,6 +1,6 @@
 # F Zemmour
 
-Links for programs not related to immigration in France
+Links for exchange programs not related to immigration in France
 
 ## US AMBASSY
 
